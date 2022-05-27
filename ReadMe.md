@@ -1,0 +1,5 @@
+Ironically, so many other people also try too hard to be different that they all wind up being the exact same, so hipsters arent actually different at all, theyre just people that are snobbier and more annoying about their taste in "alternative" things, which are all popular now thanks to the other hipsters.
+Hipsters pride themselves on liking things that no one else likes, and normally only really like them because they think no one else likes them and that theyre being unique. This is being delusional because all the other hipsters also like the same things.
+Hipster: "I love Mumford and Sons because they're so different to popular music nowadays."
+A Million Other Hipsters: "I love Mumford and Sons because they're so different to popular music nowadays."
+Mumford and Sons consequently becom a popular band because of their large hipster following of people who think they're being different for listening to them.
